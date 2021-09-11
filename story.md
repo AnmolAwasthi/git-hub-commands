@@ -1,1 +1,1 @@
-There was a thirsty crow. 
+There was a thirsty crow.  Crow came near  a pot filled with very less water.
